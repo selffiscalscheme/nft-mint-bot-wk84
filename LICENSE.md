@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with elite nft mint bot | private-RPC-nodes + take-profit, the #1 nft mint bot. Includes private-RPC-nodes and take-profit for a faster and more
 
 
 
